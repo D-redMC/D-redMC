@@ -1,0 +1,4 @@
+- 👋 Hola, soy @D-redMC o D_redMC
+- 👀 Me interesa el juego Minecraft llevo 5 años jugandolo se mucho de comando y datapacks
+- 🌱 Actualmente soy un commander y datapacker proximamente mapmaker y youtuber
+- 📫 Me puedes contactar en discord como: D_redMC#7215 o en twitter como: D_redMC
